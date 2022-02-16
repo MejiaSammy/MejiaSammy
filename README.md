@@ -1,4 +1,5 @@
-### Hi!👋 I'm Samantha Mejia, you can call me Sammy or Sam! ![Bienvenida (2)](https://user-images.githubusercontent.com/99362624/154328530-ab238c1c-51ba-4120-a48c-239221f5dceb.png)
+### Hi!👋 I'm Samantha Mejia, you can call me Sammy or Sam! ![cddcd62d-65d4-4557-a349-1a0f3151](https://user-images.githubusercontent.com/99362624/154345123-29c3bd05-e35d-42f5-a54f-6790e0253cd4.png)
+
 
 ![Top 5 About Me (1) (1)](https://user-images.githubusercontent.com/99362624/154329116-3acfc5b3-b91e-42a0-9be3-d71959d53729.gif)![214e2e2c-3a98-46f6-9b61-50c57a0d](https://user-images.githubusercontent.com/99362624/154329311-82bd9430-1204-4877-928b-b012e05cdb90.png)
 
